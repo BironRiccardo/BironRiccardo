@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BironRiccardo
+- 👀 I’m interested in mathematichs, physics and computer science
+- 📫 How to reach me: r.biron@studenti.unipi.it
